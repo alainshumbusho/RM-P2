@@ -1,6 +1,76 @@
 # Role Models P2
 
 
+
+Tessy Rusagara
+Emmy Makeh 
+
+
+Gatera Egide and Family
+Olivier Nizeyima and Family
+
+Fazil Harerimana 
+Delmy Fazil
+Vuningoma Dieudonne
+
+Former Soldier Charles Rwandamura
+Former Employee Eric Kayiranga
+Charles Mudakikwa
+Pierre Kaberuka
+
+Francis Habumugisha
+Bishop Kayinamura Samuel
+Joviale Kayinamura
+Janet Karemera
+
+Former Soldier Jean Baptiste Willy Ndihokubwabo
+Former Employee and Non-Traitor Geraldine Umutesi
+Former Young Officer Paul TVP
+Former Employee Christian Rene 
+
+Former Employee Francis Gatare and Family
+Former Soldier Willy Rwagasana
+Former Soldier Fernand Ruzigana
+Former Soldier Jackson Yabatsinze
+
+Former Soldier Criminal Vincent Nyakarundi and Family
+Former Soldier Criminal Andrew Nyamvumba and Family
+Wanted Criminal Apollo Kirisisi Ismael
+Former Employee and Diplomat Jacques Kabale
+
+Former Ambassador Ernest Rwamucyo
+Former Soldier Jack Nziza
+Emmy Ruvusha
+Former Soldier Dan Munyuza
+
+Former Soldier Patrick Karuretwa
+Sam Rwasanyi
+ISSA SENONO
+Joseph Mwesigye
+
+Eugene Nkubito
+Pierre Kaberuka
+Pascal Muhizi
+Vincent Gatama
+
+Richard Muya
+Frank Mutembe
+Charles Mudakikwa
+Andrew Nyamvumba
+
+Simba Kinesha
+Former Employee Manasseh Nshuti
+Former Employee Mr.Nick Barigye
+
+Former Employee Amanda Rurangwa
+Former Employee Rurangwa U. Nelly
+Former Employee Jean Bosco Kazungu
+
+Xavier Ndahayo
+Shakila K. Umutoni
+
+
+---------------------------------------------------------------------------------------------
 Esperance Nyirasafari and Family
 
 
@@ -43,16 +113,6 @@ Eric Gisa Rwigema (Junior)
 Teta Gisa Rwigema
 
 
-Ivan Kagame
-
-
-Ian Kagame
-
-
-Brian Kagame
-
-
-Carmel Ganza
 
 
 Dr. Sabin NSANZIMANA and Family
@@ -70,11 +130,7 @@ Rev Kije Mugisha Rwamasirabo
 Rosemary Mbabazi and Family
 
 
-Dr. Diane Gashumba and Family
-
-
-Portia Karegeya
-
+Dr. Diane Gashumba and Famil
 
 
 Erica Mbanda and Family
@@ -103,15 +159,6 @@ Diogène Ntarindwa (Atome)
 Mukangemanyi Adeline Rwigara
 
 
-Jacqueline Muhongerwa and Ch.
-
-
-Barbara Umuhoza
-
-
-Agape K and Family
-
-
 Tessy Rusera and Family
 
 
@@ -127,11 +174,7 @@ Protais Musoni and Family
 Nathalie Munyampenda 
 
 
-TESI
-
-
 Sonia Mugabo and Diego Twahirwa
-
 
 
 Teddy Mugabo and Family
